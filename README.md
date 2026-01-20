@@ -1,1 +1,1 @@
-# CoreNumeric
+# JOHN BRANDON QUINONES ESPINAL
